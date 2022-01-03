@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @CNGDT
+- 👀 I’m interested in funs
+- 🌱 I’m currently learning gow to fenagle with 3d printing
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me ...
